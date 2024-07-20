@@ -1,1 +1,1 @@
-Show Box APK <a href="[url](https://showboxapk.us/)">show box</a>is a popular application for Android devices, designed to provide users with access to a wide range of movies and TV shows for streaming and doswnloading. 
+Show Box APK <a href="https://showboxapk.us/">show box  </a>is a popular application for Android devices, designed to provide users with access to a wide range of movies and TV shows for streaming and doswnloading. 
